@@ -1,0 +1,1 @@
+# quickscoop-privacy-policy
